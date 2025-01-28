@@ -1,0 +1,1 @@
+https://onecompiler.com/html/437eezuqk    this online compiler give code and output for responsive landing page  
